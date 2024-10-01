@@ -50,6 +50,6 @@ __*게임영상테스트*__</br>
 
 [좋아하는게임](https://lostark.game.onstove.com/Event/Update/240925/Abrelshud)
 </br></br>
-[레퍼런스게임](https://youtu.be/vM14K2pjYjk?si=QHkODdaMqXpg9Ux7)
+[레퍼런스게임](https://www.youtube.com/watch?v=6rhcrZN0UZQ)
 </br></br>
 [목표회사](https://www.nexon.com/Home/Game)
